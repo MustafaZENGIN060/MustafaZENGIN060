@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MustafaZENGIN060
-- 👀 I’m interested in Aerospace , Computer Games and IT
+- 👀 I’m interested in Aerospace  and IT
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on IT
 - 📫 How to reach me ...
